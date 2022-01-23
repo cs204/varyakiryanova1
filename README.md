@@ -1,2 +1,0 @@
-# varyakiryanova1
-psets
